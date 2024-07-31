@@ -1,0 +1,1 @@
+# Nova-Realidade-IAs-Geram-Fotos-Realistas-
